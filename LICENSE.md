@@ -1,4 +1,4 @@
-#  
+#  all star tower defense hidden Script offers the most advanced all star tower defense Script, with undetectable and auto-upgrade. Perfect for
 
 
 
